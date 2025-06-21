@@ -1,0 +1,1 @@
+# 202331003_Rafifah-Nur_Ketetanggaan-dan-konvolusi
